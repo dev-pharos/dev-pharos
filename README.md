@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @dev-pharos
+- I'm here to wreak havoc and eat eucalyptus and I'm out of eucalyptus
